@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+- star magic
+- toria's car
+  - fireworks
+  - ford pinto
+  - rust color
+- green grass and fall trees
